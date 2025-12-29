@@ -1,3 +1,6 @@
 ###  HELLO !!!!!!
-![](https://files.catbox.moe/w6j7wj.png)
+remaking rentry 4 now sorryryry sorryyyr 
+bmf 
+shintsumikied/iluvsyobai on discord n faesinterludez on tiktok 
+I am so cool 
 

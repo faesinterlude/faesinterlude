@@ -4,6 +4,10 @@
 **shintsumikied/iluvsyobai on discord
 faesinterludez on tiktok** 
 
+[rentry](https://rentry.co/faesinterludez) [e2r rentry (easy to read)](https://rentry.co/faesinterlude)
+
+
+
 dispatch / nintendo / 60s / sdra2 / dra / yttd / f&h / lisa:the rpg/hotline miami / rpdr / etc fans **INTERACT** I LOVE U GUYS PLEASE 
 
 I am so cool 

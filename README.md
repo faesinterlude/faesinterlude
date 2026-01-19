@@ -1,5 +1,6 @@
 ###  HELLO !!!!!! 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313iboymthyc4p6uup4iecl35n5u&cover_image=true&theme=spotify-embed&show_offline=true&background_color=2d3a22&interchange=false&profanity=false&mode=light&bar_color=c19a9a&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=313iboymthyc4p6uup4iecl35n5u&redirect=true)
+
 **shintsumikied/iluvsyobai on discord
 faesinterludez on tiktok** 
 

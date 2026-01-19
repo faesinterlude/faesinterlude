@@ -4,7 +4,7 @@
 **shintsumikied/iluvsyobai on discord
 faesinterludez on tiktok** 
 
-[rentry](https://rentry.co/faesinterludez) [e2r rentry (easy to read)](https://rentry.co/faesinterlude)
+[rentry](https://rentry.co/faesinterludez) / [e2r rentry (easy to read)](https://rentry.co/faesinterlude)
 
 
 
